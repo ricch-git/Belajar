@@ -1,0 +1,2 @@
+# Belajar
+Gajelas Lah Pokoknya
